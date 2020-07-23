@@ -4,6 +4,8 @@ Kultura naszej organizacji pozwala nam z automatu korzystać z najważniejszego 
 Pracownikom w Polsce, dofinansowujemy (50%) wartości karnetu Multisport, gwarantującefo dostęp do rozległej sieci siłowni, basenów i innych obiektów czy zajęć sportowych. Skontaktuj się z naszym Office Managerem, aby się zapisać.
 # Prywatna opieka medyczna
 Tak samo działa dofinanoswanie do pakietu prywatnej opieki medycznej Medicover (50%). Skontaktuj się z naszym Ofiice Managerem, aby się zapisać.
+# Bezpłatne lekcje angielskiego
+Nasze projekty prowadzone są w języku angielskim, dlatego co tydzień spotykamy się z native speaker'em podczas konwesacji.
 # Płatny parking 
 Refundujemy koszty płatnych parkingów w przypadku korzystania z parkingów w okolicach naszego gliwickiego biura.
 # Komputery i oprogramowanie
